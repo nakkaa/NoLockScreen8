@@ -2,7 +2,7 @@
 y’˜ìŒ Òznakkaa
 yVersionz2.2
 y§ì“úz2014/02/08
-y˜A—æznakkaa@7ka.org
+y˜A—æztnakkaa@gmail.com
 y”z•zŒ³zhttp://7ka.org/
 y“®ìŠÂ‹«zWindows 8 / 8.1
 ------------------------------------------------------------------------------------------
